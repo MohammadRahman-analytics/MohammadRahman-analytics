@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Mohammad Rahman.:
+I'm Mohammad Rahman:
 
 I’m a sports analyst and basketball analytics researcher with a background shaped by Royal Holloway, basketball coaching, and building with YaKno. My work has focused on turning on-court performance into actionable insight, including tracking 15+ KPIs per athlete and helping support a Division 3 to Division 2 promotion. I’ll be joining Fordham for an MSc in Business Analytics in 2027, where I’ll keep sharpening the technical and strategic side of my work.  
 
