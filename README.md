@@ -32,5 +32,3 @@ Long term: become an NBA General Manager.
 How To Reach Me:
 - LinkedIn: https://www.linkedin.com/in/mohammad-rahman-b37216274/
 - Email: mr3641100@gmail.com 
-- LinkedIn: https://www.linkedin.com/in/mohammad-rahman-b37216274/
-- Email: mr3641100@gmail.com 
